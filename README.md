@@ -1,3 +1,3 @@
 # pandeyabhishank-25
 
-:bullets: Hii!! there :wave:
+ Hii!! there :wave:
