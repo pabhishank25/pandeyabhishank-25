@@ -1,3 +1,5 @@
 # pandeyabhishank-25
 
- Hii!! there. My name is Abhishank Pandey .I am a 3rd year engineering graduate student from GLA UNIVERSITY,MATHURA :wave:
+ Hii!! there :wave:
+💁 My name is Abhishank Pandey. 
+:college I am a pre-final year engineering graduate student from GLA UNIVERSITY, Mathura(Chaumuhan, Uttar Pradesh).
